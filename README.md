@@ -789,3 +789,15 @@ gracze wokół czegoś muszą się skupiać, a taki serwer działający 24/7/365
 Chętnie służę pomocą i odpowiem na pytania: traq(at)shl.pl
 
 Wyścig kapsli jako local event.
+
+# Polish Explanation
+
+Będziemy wspólnymi siłami tworzyć poznańskie miejsce do coworkingu Cyberhippie Collective. Będzie to z założenia studio indie, przestrzeń, w obrębie której będzie można popracować w otoczeniu pasjonatów, nawiązać kontakty z twórcami gier, wziąć udział w tematycznych wydarzeniach: spotkaniach, wystawach, warsztatach, game jamach, livestreamach, game nights'ach, a także skorzystać z takich usług jak: konsultacje, copywriting, gameling, wypożyczanie sprzętu takiego jak Oculus Rift... Przestrzeń ma być otwarta (wzorujemy się na kanadyjskim "Bento Miso"), podzielona na sektory z wygodnymi miejscami do pracy. Będzie to także miejsce dla stowarzyszenia Poznańska Gildia Graczy. Aby korzystać z Cyberhippie Collective będzie trzeba płacić subskrypcję (np. dniową/miesiączną lub roczną), aby miejsce utrzymać, opłacić, ulepszać. Tak w wielkim skrócie - coś w rodzaju domu kultury dla twórców gier oraz osób mających ochotę współdziałać z lokalnym gamedevem. Jesteśmy na etapie poszukiwania lokalu na potrzeby Cyberhippie oraz zbierania kontaktów (w tym zagranicznych), które pomogą na początku także finansowo (w planach Patreon). Widzimy z Tymoteuszem, że zainteresowanie jest niemałe i chęć pomocy także jest. Zorganizujemy spotkanie informacyjne w najbliższym czasie.
+
+---
+
+Cyberhippie Collective to jednoosobowe studio gier niezależnych oraz Poznańska przestrzeń do co-workingu dla twórców gier i wszelkiej maści interaktywnych projektów. 
+
+Można w niej będzie popracować w otoczeniu pasjonatów, nawiązać kontakty, wziąć udział w tematycznych wydarzeniach: spotkaniach, wystawach, warsztatach, gamejamach, livestreamach, a także skorzystać z kreatywnych usług studia takich jak: konsultacje, copywriting, tłumaczenia dla polskich zespołów, wypożyczanie sprzętu. 
+
+Przestrzeń ma być otwarta, podzielona na sektory z wygodnymi miejscami do pracy. Aby korzystać z Cyberhippie Collective będzie trzeba płacić miesięczną subskrypcję, aby miejsce utrzymać, opłacić i cały czas ulepszać. 
