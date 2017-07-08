@@ -801,3 +801,121 @@ Cyberhippie Collective to jednoosobowe studio gier niezależnych oraz Poznańska
 Można w niej będzie popracować w otoczeniu pasjonatów, nawiązać kontakty, wziąć udział w tematycznych wydarzeniach: spotkaniach, wystawach, warsztatach, gamejamach, livestreamach, a także skorzystać z kreatywnych usług studia takich jak: konsultacje, copywriting, tłumaczenia dla polskich zespołów, wypożyczanie sprzętu. 
 
 Przestrzeń ma być otwarta, podzielona na sektory z wygodnymi miejscami do pracy. Aby korzystać z Cyberhippie Collective będzie trzeba płacić miesięczną subskrypcję, aby miejsce utrzymać, opłacić i cały czas ulepszać. 
+
+# People Providing Expertise
+Rafał Pyciak https://www.facebook.com/rafal.pyciak
+Publisher Advice & Legal Expertise
+
+Igo Goldberg https://www.facebook.com/igo.goldberg
+Audio Sampling & Music Production Advice
+
+@LarryChupacabra
+YouTube Let's Player
+
+# Space Suggestions
+
+- Galeria MM Biura http://galeriamm.poznan.pl/lokalizacja/komunikacja-miejska/
+- Greenpoint http://biuranet.pl/Biura,wynajem,Galeria-Green-Point,Poznan,Galeria-Green-Point,oferta131950.html
+- Różana k. Cafe Start
+- Wawrzyniaka (po Uniwersytecie Medycznym)
+Ewa Podydworna +48602538482 Jeżeli chodzi o budynek PZG na Wawrzyniaka tam jest Zakład.
+- przy Bułgarskiej Rycerskiej 61 639 75 75
+- http://www.p2-poznan.pl/schemat-offices_plans-pl.html
+
+# Things you can do at Cyberhippie
+
+DAILY WORKSPACE
+WORKSHOPS 
+MEETINGS
+EXHIBITS
+TRAININGS
+GAME JAMS
+LIVESTREAMS
+GAME NIGHTS
+NETWORK LUNCH
+
+- Ingress Farm Spot (sticker on doors)
+
+Private Workspace for mothnode
+
+Snow Lion Revenue
+Consulting
+General Donations (buy me a tea)
+Stream Donations
+Jobs in Games Revenue
+Retromarketing.com Ad Revenue
+Oculus Rift Rental Revenue http://virtualdutchmen.com/
+Website Ad Revenue
+HTML5 Ad Revenue
+HTML5 Sponsorships
+
+# Spreading List
+
+Shared: https://www.facebook.com/groups/1410038562616706/permalink/1586890608264833/
+https://www.facebook.com/groups/138760989530871/permalink/831022530304710/
+https://www.facebook.com/groups/429483520479205/permalink/789792024448351/
+https://www.facebook.com/groups/jobsingames/permalink/967237499988365/
+https://www.facebook.com/groups/gramy.w.komputer/permalink/953114438046454/
+
+https://www.facebook.com/adekOwner?fref=ufi
+https://www.facebook.com/tom.maciag?fref=ufi
+https://www.facebook.com/igo.goldberg
+https://www.facebook.com/rafal.wilinski.9
+https://www.facebook.com/lesniewsky
+https://www.facebook.com/wojtek.kubiak.167?fref=ufi
+https://www.facebook.com/targoni?fref=pb&hc_location=profile_browser
+https://www.facebook.com/pawbrzo?fref=pb&hc_location=profile_browser
+https://www.facebook.com/jacaftw?fref=pb&hc_location=profile_browser
+https://www.facebook.com/maajlo?fref=pb&hc_location=profile_browser
+https://www.facebook.com/krzysztof.kowal.399?fref=pb&hc_location=profile_browser
+Maciej Targoni
+https://www.facebook.com/juliusz.cezar
+
+**Polish**
+
+Poznanski Gamedev https://www.facebook.com/groups/1410038562616706/
+Poszukiwany/Poszukiwana w Projektowaniu Gier https://www.facebook.com/groups/jobsingames
+Digital Frontier https://www.facebook.com/groups/288115617963424/
+Gramy w komputer https://www.facebook.com/groups/gramy.w.komputer
+Gry którysz nie znasz a powinienes https://www.facebook.com/groups/138760989530871
+Indie Game Developers Polska https://www.facebook.com/groups/429483520479205/
+Poznanska Gildia Graczy https://www.facebook.com/groups/PoznanskaGildiaGraczy
+Pogradajmy https://www.facebook.com/groups/pogradajmy
+Unity 3D Polska https://www.facebook.com/groups/unity3dPolska
+Social Games PL https://www.facebook.com/groups/164787343537020/
+Mam prace dla freelancera https://www.facebook.com/groups/282850401780600
+Branza growa https://www.facebook.com/groups/branzagrowa
+HCgamer.pl https://www.facebook.com/groups/HCgamer
+RPG Poznan Gramy https://www.facebook.com/groups/120111831453186
+Grajace Kobiety https://www.facebook.com/groups/GrajaceKobiety
+Grywalizacja https://www.facebook.com/groups/grywalizacja
+Startup Poznan Jobs https://www.facebook.com/groups/807557209268344
+Poznan Valley https://www.facebook.com/groups/biznespunks
+Praca w kulturze i sztuce https://www.facebook.com/groups/praca.w.kulturze
+Social Poznan https://www.facebook.com/groups/socialpoznan
+
+**English**
+IndieDevHour https://www.facebook.com/groups/1501704946752460
+Indie Game Developers https://www.facebook.com/groups/8117041572
+Gamedev.js https://www.facebook.com/groups/gamedevjs
+Indie Game Chat https://www.facebook.com/groups/529178963808055
+DD Gaming https://www.facebook.com/groups/doubledgaming
+Indie Games https://www.facebook.com/groups/indiegames
+Just Play Games https://www.facebook.com/groups/justplaygames.org
+Neurogaming https://www.facebook.com/groups/185156058275051
+Indie Game Players & Developers https://www.facebook.com/groups/1435669336648312
+Indie Game Promo https://www.facebook.com/groups/227592780726252
+Game Development https://www.facebook.com/groups/gamedevelopmentx
+Construct 2 Game Developers https://www.facebook.com/groups/construct2devs/
+Construct 2 Gamedevs https://www.facebook.com/groups/construct2
+Gamedev https://www.facebook.com/groups/gamedev
+Gamedev Beginners https://www.facebook.com/groups/695241337203540
+The Semiotics of Video Games https://www.facebook.com/groups/109655655733219
+CRYENGINE Developers https://www.facebook.com/groups/CryENGINE.Developers
+Indie Game Developers https://www.facebook.com/groups/156412141097759
+Video Game Developers https://www.facebook.com/groups/2248433342
+
+**Spanish**
+Mermelada de Juegos https://www.facebook.com/groups/mermeladadejuegos
+
+https://twitter.com/VGAlmanac
