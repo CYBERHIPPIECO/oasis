@@ -787,3 +787,5 @@ przyczynia się do popularyzacji gry, dzięki czemu nadal sprzedają się konta 
 musiał wykazać się kreatywnością i stworzyć, bądź zmodyfikować istniejące już mody, żeby serwer był atrakcyjny dla graczy i unikatowy, czym znowu przedłuża życie gry i ją popularyzuje,
 gracze wokół czegoś muszą się skupiać, a taki serwer działający 24/7/365 z polskimi adminami, polską stroną i forum, gdzie gracze uzyskują wsparcie w języku polskim, jest idealną platformą, która skupia społeczność.
 Chętnie służę pomocą i odpowiem na pytania: traq(at)shl.pl
+
+Wyścig kapsli jako local event.
