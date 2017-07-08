@@ -919,3 +919,19 @@ Video Game Developers https://www.facebook.com/groups/2248433342
 Mermelada de Juegos https://www.facebook.com/groups/mermeladadejuegos
 
 https://twitter.com/VGAlmanac
+
+# Affiliated Tribes
+
+Poznańska Gildia Graczy
+Robert Podgórski
+
+Stormhatt Studios with Barmark
+(for graphics and animations)
+
+Thrive Games with Dragon of Legends
+(promoting Antumbra and our Patreon)
+
+Ankama with Kwaan
+
+Gamespace by @darkbean (Paris)
+
