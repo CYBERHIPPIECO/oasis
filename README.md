@@ -515,3 +515,275 @@ Sometimes turns into a nomadic game-jamming entity fed with oreos and piñatas.
 From rough experimental indies to finely-crafted narrative experiences, games continuously teased me mad
 as a medium and unleashed emotions of excitement and immersion consistently incomparable with noninteractive
 media. There is a vast ocean out there.
+
+VR Rental like virtualdutchmen
+
+The Space Expansion
+
+BENTO MISO COLLABORATIVE WORKSPACE
+A place for independent creative people to work and play
+
+We’re a coworking space and thriving community  sharing our skills and stuff.
+
+HOW TO FIND US
+
+862 Richmond Street West is one block west of Walnut and south of Queen and Trinity-Bellwoods Park, in the heart of Toronto's West Queen West neighborhood. 
+
+TTC: get off of the King or Queen streetcar at Strachan.
+
+Driving: Green P lot at Walnut & Richmond, and metered street parking on Queen.
+
+Buy a Day Pass
+NON-MEMBER DAY PASS
+
+Day Passes are available for out-of-towners and anyone curious about joining Bento Miso. It includes access to the space during regular hours.
+$30.00 + $3.90 HST
+
+Become a member
+
+Features:
+
+Comfort
+Herman Miller SAYLchairs, big BluDot tables
+
+Power
+Plugs everywhere + speedy wi-fi
+
+Focus 
+Meeting room + whiteboard walls
+
+Perks
+Free workshops, book your own event
+
+Fun
+Arcade, game nights, consoles, events
+
+Flexible
+4 membership plans, no-commitment month-to-month billion, Day Passes
+
+Regular Hours
+
+Mon-Sac 10am - 6pm
+Wed 10am - 10pm
+
+Sun Closed
+
+Upcoming Holidays
+Closed for Winter Holidays
+Wed, Dec 24 - Sat, Dec 27
+
+Upcoming events
+Games / Workshops / Tournaments / Jams
+
+
+
+About
+We’re a membership-based collaborative workspace for independent designers and developers, food makers and beer brewers, writers, comic artists, game makers and social justice organizers—a community first, a shared space second.
+
+THE SPACE
+
+Miso sits in the heart of Queen West, in a brick-and-beam building just south of Trinity-Bellwoods Park. It's 5,300 sq. ft. of inspiring, light-filled space, with bright BluDot furniture, warm original hardwood floors, brick walls, and huge factory windows.
+
+Read about Accessibility link
+We strive to create a space that is accommodating and easy-to-use for people who use assistive devices.
+
+The main entrance to the building features an automated door that opens by pushing a button. However, the button only operates the door during business hours (8:30 a.m.-6 p.m.). If you arrive after 6 p.m., and do not need assistance with the door, dial 800 on the keypad and someone will buzz you in.
+
+If you need assistance opening the door, or cannot reach the directory/buzz-in system, please call Henry Faber at (416) 879-8942 and someone will be happy to meet you.
+
+If you require ASL interpretation or any other assistance in order to attend and enjoy this event, please contact us and we will be happy to help.
+
+Suite 100
+
+Access to the ground floor space is through a door just inside the entrance. It is generally propped open. The washroom is fully wheelchair accessible.
+
+Suite 300
+
+There is direct elevator access to suite 300. Proceed down the hall to your right and push the 3R (rear) button.
+
+We welcome and invite your feedback about how to make the space easier for you to use. Contact us in person, via phone or email with your suggestions.
+
+MISO IS COWORKING
+
+We have everything you need and not a lot you don't: Workstations, power, wi-fi and Herman Miller SAYL chairs. A kitchenette on each floor with fridge space for your lunch and all the coffee and tea you can drink. A library featuring Toronto authors and artists, books on game design and Web development. Five arcade machines, lunch tables, and cozy couches in the corner. There's no assigned seating or storage, so just come in and get to work.
+
+MISO IS A COMMUNITY
+
+Our space is more than the tables and chairs and walls. Every day, Miso is filled with people focusing on interesting projects, sharing their challenges and triumphs. You might just find your next business partner, project collaborator, and friend here. And you don't have to be a coworking member to be a part of it all: Since January 2012, we have held 698 open-to-the-public events, from tech meetups to beer tastings, game nights to pop-up taco fiestas.
+
+Get involved → Try us out for a day or pop by an upcoming event!
+
+Here’s a sampling of what our members do:
+
+Web & Software
+Remote developers
+Freelance designers
+Content strategists
+Small startup teams
+Social entrepreneurs
+Illustrators & artists
+Games
+Solo indie devs
+Game audio engineers
+Small studios
+Graphic artists
+Freelance programmers
+Game journalists
+Food
+Food-tech startups
+Small retail producers
+Home bakers
+Food bloggers
+Microbrewers
+Food justice workers
+
+
+
+
+
+
+MISO IS WELCOMING AND ACCESSIBLE
+We value and are actively building a racially diverse and woman-friendly space. We offer low- or no-cost memberships to anyone who asks; strive to make the space as easy-to-use as possible for those who rely on assistive devices. Ourinclusiveness policy and Code of Conduct are living documents affirmed by all members and applicable to every person who uses our shared space.
+
+
+THE TEAM
+
+HENRY FABER
+CO-FOUNDER + DIRECTOR
+COMMUNITY DEVELOPMENT
+Twitter
+HENRY EXTENDS DESIGN PRINCIPLES INTO BUSINESS STRATEGY, PROBLEM-SOLVING AND RELATIONSHIP-BUILDING TECHNIQUES THAT TURN GREAT IDEAS INTO SUCCESSFUL PRODUCTS. HE EXCELS AT MAKING THE COMPLEX UNDERSTANDABLE AND EXECUTABLE. A GRADUATE OF EMILY CARR’S NEW MEDIA PROGRAM, HE HAS WORKED AS A DESIGNER, CONSULTANT AND MENTOR FOR CLIENTS AND ORGANIZATIONS THROUGHOUT NORTH AMERICA FOR MORE THAN 20 YEARS. HE FOUNDED BENTO BOX PROJECTS, INC. IN VANCOUVER IN 1999.
+
+CODE OF CONDUCT
+BENTO MISO
+ 
+ GENERAL
+ 
+ TERMS & POLICIES
+ALL COMMUNITY PARTICIPANTS—INCLUDING MEMBERS AND GUESTS OF MEMBERS, EVENT HOSTS, SPONSORS, PRESENTERS, EXHIBITORS AND ATTENDEES—ARE EXPECTED TO ABIDE BY THIS CODE OF CONDUCT.
+
+BY BECOMING A MEMBER OF BENTO MISO, OR ATTENDING OR HOSTING ANY EVENT AT BENTO MISO IN ANY CAPACITY, YOU AGREE TO ABIDE BY THIS CODE OF CONDUCT, AND COOPERATE WITH ORGANIZERS WHO ENFORCE IT.
+
+EXPECTED BEHAVIOR
+
+WE INSIST THAT EVERYONE WHO USES THE SPACE REMAINS MINDFUL OF, AND TAKES RESPONSIBILITY FOR, THEIR SPEECH AND BEHAVIOR. THIS INCLUDES:
+
+ALWAYS ACTING OUT OF RESPECT AND CONCERN FOR THE FREE EXPRESSION OF OTHERS.
+ACTIVELY LISTENING TO OTHERS AND NOT DOMINATING DISCUSSIONS.
+RESPECTING PHYSICAL AND EMOTIONAL BOUNDARIES. ALWAYS ASK BEFORE TOUCHING, AND CHECK IN BEFORE DISCUSSING TOPICS THAT MAY BE TRIGGERING.
+NOT MAKING ASSUMPTIONS ABOUT IDENTITY, EXPERIENCES, OR PREFERRED PRONOUNS.
+NOT USING WORDS THAT ARE RACIST, SEXIST, TRANSPHOBIC, HOMOPHOBIC, CLASSIST, CISSEXIST OR ABLEIST.
+HUMBLY ACCEPTING RESPECTFUL CORRECTION (OR CORRECTING YOURSELF!), KEEPING IN MIND THAT THE IMPACT OF YOUR WORDS ON OTHER PEOPLE IS MORE IMPORTANT THAN YOUR INTENT.
+UNACCEPTABLE BEHAVIOR
+
+WE BELIEVE THAT FAILING TO ADDRESS DYNAMICS OF HIERARCHY, POWER AND PRIVILEGE ALIENATES AND FURTHER VICTIMIZES OUR MEMBERS AND PREVENTS US FROM CREATING THE SAFE AND EQUITABLE SPACE WE WANT.
+
+WE DO NOT TOLERATE OPPRESSIVE BEHAVIOR, HARASSMENT, DESTRUCTIVE BEHAVIOR, OR EXCLUSIONARY ACTIONS.
+
+OPPRESSIVE BEHAVIOR: ANY CONDUCT THAT DEMEANS, MARGINALIZES, REJECTS, THREATENS OR HARMS ANYONE ON THE BASIS OF IDENTITY, BACKGROUND, OR ABILITY.
+
+HARASSMENT: DELIBERATE INTIMIDATION; STALKING; FOLLOWING; HARASSING PHOTOGRAPHY OR RECORDING; DISRUPTION OF EVENTS; AGGRESSIVE, DEROGATORY, OR THREATENING COMMENTS; AND UNWANTED PHYSICAL CONTACT OR SEXUAL ATTENTION.
+
+DESTRUCTIVE BEHAVIOR: DAMAGING OR ALTERING ANY PART OF THE BUILDING, INSIDE OR OUT, INCLUDING FURNITURE, EQUIPMENT, OR OTHER PEOPLE'S BELONGINGS.
+
+EXCLUSIONARY ACTIONS: DENYING CERTAIN PARTICIPANTS OPPORTUNITIES TO SHARE VIEWS, SKILLS AND OTHER CONTRIBUTIONS; ENGAGING IN FAVORITISM; AND CREATING OR REINFORCING AN INEQUITABLE LEARNING ENVIRONMENT.
+
+ENFORCEMENT
+
+ANYONE‭ ‬ASKED‭ ‬TO‭ ‬STOP‭ ‬UNACCEPTABLE‭ ‬BEHAVIOR‭ ‬IS‭ ‬EXPECTED‭ ‬TO‭ ‬COMPLY‭ ‬IMMEDIATELY.
+
+ANYONE WHO ENGAGES IN SUSTAINED ‬UNACCEPTABLE BEHAVIOR MAY BE SANCTIONED ‬OR‭ ‬PERMANENT‭LY ‬EXPELLED‭ ‬FROM‭ ‬THE‭ ‬COMMUNITY‭ ‬WITHOUT‭ ‬WARNING‭ (‬AND‭ ‬WITHOUT‭ ‬REFUND‭ ‬IN‭ ‬THE‭ ‬CASE‭ ‬OF‭ ‬A‭ ‬PAID‭ ‬EVENT‭)‬.
+
+WHAT TO DO IF YOU NEED HELP
+
+IF YOU WITNESS OR ARE SUBJECT TO UNACCEPTABLE BEHAVIOR, OR EXPERIENCE MARGINALIZING OR SILENCING BEHAVIOR THAT LIMITS YOUR FULL PARTICIPATION IN ANY BENTO MISO EVENT, PLEASE TALK TO ANY OF THE FOLLOWING PEOPLE:
+
+THE HOST OF THE EVENT YOU ARE ATTENDING (LISTED ON THE EVENT PAGE)
+HENRY FABER - (416) 879-8942
+JENNIE FABER - (416) 857-9189
+YOUR CONVERSATION WILL BE HELD IN CONFIDENCE.
+
+WHEN YOU COME TO US WITH A PROBLEM DURING AN EVENT, IT IS OUR TOP PRIORITY TO HELP YOU FEEL SAFE AS QUICKLY AS POSSIBLE. NEXT, A SMALL GROUP OF COMMUNITY ORGANIZERS AND MEMBERS WILL MEET TO DECIDE WHAT OUR RESPONSE WILL BE. THEN, WE WILL WARN OR REMOVE THE OFFENDER DEPENDING ON THE CIRCUMSTANCES, TAKING YOUR AND THE COMMUNITY'S SAFETY AND WISHES INTO ACCOUNT.
+
+COMMUNITY‭ ‬ORGANIZERS‭ ‬ARE‭ ‬AVAILABLE‭ ‬TO‭ ‬HELP‭ YOU ‬ENGAGE‭ ‬WITH‭ ‬LOCAL‭ ‬LAW‭ ‬ENFORCEMENT (SOLELY AT YOUR REQUEST).
+
+BY REGISTERING FOR OR HOSTING AN EVENT, YOU AGREE TO MAKE YOUR NAME VISIBLE ON THE PUBLIC EVENT PAGE. THIS VISIBILITY HELPS MAINTAIN THE SAFETY OF OUR SPACE. (NAMES ARE REMOVED ONCE AN EVENT IS OVER.) ANYONE NOT REGISTERED FOR AN EVENT MAY BE DENIED ENTRY.
+
+DESCRIPTION OF SERVICE
+
+YOUR USE OF THE SPACE IS AN 'AT WILL' LICENSE WHICH WE MAY REVOKE AT ANY TIME, FOR ANY REASON. THIS IS NOT A LEASE OR A SUBLEASE.
+ACCESS TO THE SPACE AS ALLOWED BY YOUR MEMBERSHIP LEVEL, SUBJECT TO OPEN HOURS, WHICH MAY CHANGE AT OUR DISCRETION (WE WILL ATTEMPT TO GIVE YOU NOTICE).
+USAGE IS CALCULATED ON A MONTHLY (BY BILLING CYCLE OR BY CALENDAR MONTH) BASIS AND UNUSED DAYS DO NOT ROLL OVER.
+MEMBERSHIPS ARE ONLY FOR INDIVIDUALS, AND MAY NOT BE SHARED WITH ANYONE ELSE.
+YOU MAY USE ONE WORKSTATION SOLELY FOR YOUR OWN COMMERCIAL PURPOSES DEEMED APPROPRIATE BY US.
+EXTERNAL MONITORS ARE NOT TO BE USED IN THE OPEN COWORKING SPACE.
+THERE IS NO GUARANTEE OF AVAILABILITY OF WORKSPACE ON A GIVEN DAY/TIME.
+NON-MEMBERS ARE NOT ENTITLED TO GUEST PRIVILEGES—THAT IS, YOU MAY NOT BRING GUESTS DURING IF YOU'RE ON A NON-MEMBER DAY PASS, AND YOUR GUESTS MAY NOT BRING THEIR OWN GUESTS.
+YOUR MEMBERSHIP MAY BE CANCELED WITHOUT NOTICE IF YOU VIOLATE OUR CODE OF CONDUCT.
+YOUR RESPONSIBILITIES
+
+YOU AFFIRM SUPPORT OF OUR DIVERSITY & INCLUSIVENESS STATEMENT AND AGREE TO ABIDE BY OUR CODE OF CONDUCT.
+
+NO STORAGE OF PERSONAL ITEMS IS ALLOWED IN THE COWORKING SPACE. ANY PERSONAL ITEMS ARE LEFT IN THE SPACE AT YOUR OWN RISK. WE DO NOT GUARANTEE THE SECURITY OF ANY OF YOUR BELONGINGS. WE ARE NOT RESPONSIBLE IF ANYTHING IS BROKEN OR STOLEN ON OUR PREMISES.
+YOU ARE RESPONSIBLE FOR YOUR USE OF THE COMMON AREAS, FURNITURE, AND EQUIPMENT. IN OTHER WORDS, YOU BREAK IT, YOU BUY IT.
+YOU MAY NOT ENGAGE IN ANY ILLEGAL ACTIVITY IN THE SPACE.
+DO NOT VIOLATE THE RIGHTS OF OTHERS, INCLUDING RIGHT TO PRIVACY, CONFIDENTIALITY, AND ENJOYMENT OF THE SPACE.
+DO NOT DISTURB OTHER MEMBERS IN THE SPACE OR OTHER TENANTS IN THE BUILDING. PLEASE TAKE LOUD AND/OR LONG CELL PHONE CONVERSATIONS OUT OF THE COWORKING SPACE.
+UP TO 2 GUESTS ARE ALLOWED TO ACCOMPANY YOU ON A GIVEN DAY (A FEE OF $25 PER GUEST APPLIES). YOU ARE RESPONSIBLE FOR YOUR GUESTS, AND THEY ARE ALSO RESPONSIBLE FOR THEMSELVES.
+WE MAY CHANGE THESE RULES FROM TO TIME, AND YOU AGREE TO ADHERE TO THEM.
+
+PAYMENT TERMS
+
+PAYMENT IN FULL IS DUE AT THE BEGINNING OF YOUR MONTHLY MEMBERSHIP CYCLE. IF PAYMENT IS NOT RECEIVED WITHIN 7 DAYS OF THE DUE DATE, WE RESERVE THE RIGHT TO RESTRICT YOUR ACCESS TO THE SPACE, OR REVOKE YOUR MEMBERSHIP.
+MEMBERSHIP MAY BE REVOKED FOR ANY REASON; YOU WILL BE REFUNDED FOR THE REMAINING PERIOD OF MEMBERSHIP, IF APPLICABLE.
+CANCELLATIONS: YOUR MEMBERSHIP WILL END AT THE END OF THE CURRENT BILLING MONTH. NO REFUNDS WILL BE GIVEN FOR VOLUNTARY CANCELLATION.
+UPGRADES/DOWNGRADES: A PRORATED CREDIT WILL BE APPLIED TO YOUR ACCOUNT FOR YOUR CURRENT PLAN; A CHARGE FOR THE FULL AMOUNT OF THE NEW PLAN WILL BE APPLIED, AND THE PERIOD START DATE WILL BE RESET TO TODAY'S DATE.DOWNGRADES TO THE YEARLY SUPPORTING PLAN ARE NOT PRORATED.
+
+WELCOME TO YOUR COMMUNITY
+MAKE YOURSELF AT HOME. MISO IS YOUR SPACE AND WE JUST WANT TO KNOW HOW TO MAKE IT BETTER FOR YOU!
+INTRODUCE YOURSELF TO YOUR COWORKERS.
+MAKE COOL STUFF AND SHOW IT TO US.
+SHARE YOUR SKILLS AND INTERESTS WITH LUNCHTIME OR EVENING WORKSHOPS.
+CHAT WITH OUR CONCIERGE IF YOU HAVE ANY QUESTIONS AT ALL.
+IMPORTANT POLICIES
+DIVERSITY AND INCLUSIVENESS STATEMENT
+CODE OF CONDUCT
+TICKET REFUND POLICY
+OFFICE HOURS CANCELLATION POLICY
+
+
+DIVERSITY AND INCLUSIVENESS STATEMENT
+BENTO MISO
+ 
+ GENERAL
+ 
+ TERMS & POLICIES
+BENTO MISO IS A COMMUNITY THAT VALUES AND RECOGNIZES DIVERSITY, AND DEFENDS AND BUILDS EQUITABLE EXPERIENCES. WE ARE COMMITTED NOT ONLY TO INCLUDING MARGINALIZED VOICES AND BODIES, BUT ALSO TO ACTIVELY FIGHTING RACISM, SEXISM, AND OPPRESSION IN ALL ITS FORMS.
+
+WE WELCOME AND ADVOCATE FOR THE PRESENCE AND CONTRIBUTIONS OF ALL PEOPLE REGARDLESS OF THEIR ABILITY, AGE, BODY SIZE, CULTURAL BACKGROUND, EDUCATION, ETHNIC ORIGIN, GENDER EXPRESSION, GENDER IDENTITY, IMMIGRATION STATUS, LANGUAGE, MARITAL STATUS, NATIONALITY, PHYSICAL APPEARANCE, POLITICAL AFFILIATIONS, RACE, RELIGION, SEXUAL ORIENTATION, SEXUALITY, STATUS AS A PARENT, SOCIOECONOMIC STATUS, OR OTHER SUCH FACTORS.
+
+PREJUDICE, OPPRESSION, AND DISCRIMINATION ARE DETRIMENTAL TO THE HEALTH AND GROWTH OF OUR COMMUNITY AND THE INDIVIDUALS WHO ARE A PART OF IT. SUPPORTING THE VISIBILITY OF OUR DIVERSE LIVES ENHANCES THE EXPERIENCES OF ALL COMMUNITY MEMBERS. WE RECOGNIZE AND HONOR OUR DIFFERENCES AND VIGOROUSLY DEFEND BENTO MISO AS A SAFE AND EQUITABLE SPACE.
+
+HAVE A SUGGESTION?
+
+THE TERMS WE USE TO DESCRIBE OUR EXPERIENCE ARE ALWAYS CHANGING, AND WE ARE ALWAYS LEARNING. WE ARE EAGER TO MAINTAIN AND DEFEND THE SAFETY AND INCLUSIVITY OF THIS COMMUNITY, SO:
+
+IF YOU THINK OF SOMETHING THAT IS MISSING FROM THIS STATEMENT, OR A WAY WE COULD IMPROVE IT, PLEASE SEND US AN EMAIL AT INFO@BENTOMISO.COM.
+
+YOU CAN ALSO ISSUE A PULL REQUEST ON GITHUB, WHERE THE MOST CURRENT VERSION OF THIS DOCUMENT IS ALWAYS AVAILABLE.
+
+Game Server Hosting
+
+Steam Greenlight, różne bundles, crowdfunding, inwestor. Free to play. Serwery dla gier. Koszty utrzymania takiego serwera nierzadko sięgają kilkuset złotych miesięcznie. Aby je pokryć w dość naturalny sposób stosuje się składki od graczy, w zamian za dodatkowe przedmioty, rangi, skórki, itp. Przeciętny polski gracz nie ma konta bankowego ani karty płatniczej, nie ma konta Paypal. Dla niego jedyną możliwością opłaty jest usługa Sms Premium. Po drugie Polacy nie gęsi i angielskiego nie znają. Polacy nie kupują, bo między innymi nie ma wersji polskiej. Koło się zamyka. Po trzecie ceny. Cena 14 euro, czy 14 dolarów, jest poza zasięgiem większości polskich graczy, ale już od 5 do 15 zł miesięcznie płacone najlepiej przez Sms Premium, lub Paysafecard nie napotyka oporów natury finansowej. Lepiej co miesiąc przez kilka lat otrzymywać 10 zł od statystycznego gracza, niż jednorazowo 76 zł. Gracze płacą albo za możliwość szybszego osiągania wyników w grze, albo za customizację, czyli budowanie swojego wizerunku (łechtanie ego). Gracz powinien płacić zawsze, ale niekoniecznie pieniędzmi. Wyżej wspomniałem, że są gracze, którzy nigdy nie będą płacić, otóż oni też płacą, ale swoim czasem spędzonym w grze. Napędzają jej popularność, to dzięki nim gracze płacący mają z kim grać. Warunkiem jest gra, w którą chce się grać (musi być dobra). Inną złotą zasadą jest takie stworzenie systemu płatności, który będzie sprawiedliwy zarówno dla tych płacących, jak i niepłacących. Gracz płacący po prostu w krótszym czasie osiąga to samo, co gracz niepłacący. Nigdy, ale to przenigdy nie wolno uzależnić dalszego rozwoju w grze, czy samej gry od zapłacenia! Kolejnym błędem jest ustawienie płatności w sposób, który daje przewagę graczom płacącym. Gracze się zrażają kiedy czują się niesprawiedliwe potraktowani i kiedy muszą płacić za „darmową” grę. Cała idea polega na tym, żeby subtelnie skłonić graczy do zapłacenia, na tyle, na ile ich stać, w sposób przystępny. Zapłacenie w grze ma być spowodowane pozytywnym bodźcem. Bardzo ważna jest też możliwość tworzenia modyfikacji. Gra w pierwotnej wersji dość szybko się nudzi. Możliwość łatwego tworzenia ich w różnorakich postaciach i dzielenia się nimi w szerszym gronie bardzo przedłuża „życie gry”.
+Warto to uwzględnić już na etapie jej projektowania. Naprawdę opłaca się dostarczyć narzędzia do tworzenia modyfikacji i dokumentację. Niepodzielnym królem płatności w Polsce jest usługa Sms Premium. Jej głównymi zaletami są: łatwość użycia, dostępność, fakt pozostawania na kontach prepaid niewykorzystanych środków, kiedy trzeba ponownie doładować dziecku kartę. Wady: od 45 do 51% z kosztu sms wpada do nas. Jest bardzo wielu operatorów usługi Sms Premium. Większość z nich nie wymaga prowadzenia działalności gospodarczej. Rozliczenia są na podstawie umowy zlecenia. Na koniec roku otrzymujemy pit i możemy się rozliczyć z fiskusem. Drugą bardzo popularną formą płatności są tzw. szybkie przelewy/płatności elektroniczne. Oferowane są przez tych samych dostawców, co usługi Sms Premium. W zasadzie same zalety: łatwa integracja, prowizja 2-3%, płatność z punktu widzenia klienta jest prosta, tania i natychmiastowa, obsługa w zasadzie wszystkich polskich banków. Kolejną popularną nad Wisłą płatnością jest Paysafecard. Obarczona jest 15% prowizji, więc należy to uwzględnić w naszych kalkulacjach. Nieco mniej popularny jest Paypal. Korzystają z niego głównie osoby posiadające już dowód osobisty i większą świadomość konsumencką. Zarówno wypowiedzi samego Markusa (Notch) Persson, jak i umożliwienie na serwerach Minecraft ustawienia „on-line mode false”, dzięki czemu serwer nadal jest dostępny dla „niezarejestrowanych kopii” gry, świadczą o wyznawanej idei, że „pirat to potencjalny lub źle obsłużony klient.” W polskiej społeczności Minecraft, tak zwany gift kod, lub inaczej konto premium jest bardzo pożądaną rzeczą. Ciekawe dlaczego, skoro można mieć Minecraft „za darmo”?
+
+Powody są dwa:
+
+korzyści jakie to niesie, np. customizacja naszej postaci, gdzie na każdym serwerze wygląda tak samo,
+dolegliwości z braku posiadania konta premium, których jest wiele i nie będę się o nich rozpisywał.
+Częściowo tak, ale jednocześnie:
+
+przyczynia się do popularyzacji gry, dzięki czemu nadal sprzedają się konta premium w Minecraft
+musiał wykazać się kreatywnością i stworzyć, bądź zmodyfikować istniejące już mody, żeby serwer był atrakcyjny dla graczy i unikatowy, czym znowu przedłuża życie gry i ją popularyzuje,
+gracze wokół czegoś muszą się skupiać, a taki serwer działający 24/7/365 z polskimi adminami, polską stroną i forum, gdzie gracze uzyskują wsparcie w języku polskim, jest idealną platformą, która skupia społeczność.
+Chętnie służę pomocą i odpowiem na pytania: traq(at)shl.pl
